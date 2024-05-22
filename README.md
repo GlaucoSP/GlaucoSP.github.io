@@ -1,1 +1,0 @@
-# glaucosp.github.io
